@@ -1,6 +1,7 @@
 ## Amelia
 
 ## Carrie
+- Both Filipino
 
 ## Di
 - Both loves camping 
