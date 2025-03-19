@@ -17,6 +17,7 @@
 - Both loves staying active
 
 ## Nick
+- Both loves Pilates
 
 ## Rajeev
 
