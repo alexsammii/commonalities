@@ -26,3 +26,4 @@
 - Favourite dish is Tonkatsu
 
 ## Ron
+- Matcha lover
