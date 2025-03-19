@@ -9,6 +9,7 @@
 - Both in the marketing industry
 
 ## Fred
+- Both Americans
 
 ## Jani
 
