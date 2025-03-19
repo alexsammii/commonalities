@@ -1,4 +1,5 @@
 ## Amelia
+- Both love the show Physical 100
 
 ## Carrie
 - Both Filipino
