@@ -20,6 +20,7 @@
 - Both loves Pilates
 
 ## Rajeev
+- Both loves fitness
 
 ## Rebecca
 
