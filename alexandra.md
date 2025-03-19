@@ -3,6 +3,7 @@
 ## Carrie
 
 ## Di
+- Both loves camping 
 
 ## Enrique
 
