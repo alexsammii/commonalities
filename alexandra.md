@@ -12,6 +12,7 @@
 - Both Americans
 
 ## Jani
+- Both likes documentaries
 
 ## Kachan
 - Both loves staying active
