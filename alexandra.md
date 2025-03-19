@@ -14,6 +14,7 @@
 ## Jani
 
 ## Kachan
+- Both loves staying active
 
 ## Nick
 
