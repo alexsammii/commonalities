@@ -23,5 +23,6 @@
 - Both loves fitness
 
 ## Rebecca
+- Favourite dish is Tonkatsu
 
 ## Ron
