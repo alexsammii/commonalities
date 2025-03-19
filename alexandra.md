@@ -6,6 +6,7 @@
 - Both loves camping 
 
 ## Enrique
+- Both in the marketing industry
 
 ## Fred
 
